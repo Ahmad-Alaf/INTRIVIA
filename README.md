@@ -10,3 +10,6 @@ Kesan saya sejauh ini intrivia adalah kegiatan yang seru, menyenangkan serta san
 
 ## Kesan Pesan Cluster 05 Sejauh ini
 Asik banget serta sangat kompak dan solid, serta dibimbing oleh kak arin dan kak andrew jadi lebih asik lagi.
+
+## Harapan Kuliah
+harapan saya yakni untuk menuntut ilmu, mencari pengalaman, serta relasi sebanyak-banyaknya agar menjadi bekal bagi saya di masa depan kelak.
